@@ -1,1 +1,0 @@
-![Capture d’écran 2025-10-27 201826.png](../../Downloads/Capture%20d%E2%80%99%C3%A9cran%202025-10-27%20201826.png)
